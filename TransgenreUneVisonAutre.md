@@ -2,30 +2,30 @@
 
 
 
-Bon je vais pas me présenté cent-fois sur le blog, donc je suis Ronce j'ai 21 ans et je suis un femme transgenre.
+Bon je ne vais pas me présenter cent fois sur le blog, donc je suis Ronce j'ai 21 ans et je suis une femme transgenre.
 
-Alors pour commence simplement. Je suis une femme. Le mot après -transgenre- ne définie pas se que je suis. Mais comment j'en suis arrivé à se que je suis, une femme. Enfin arrivé est un grand mot. Je me suis toujours sentie très féminine et j'ai toujours vécu avec cela.
-Je me suis pensée "gay" au début, puis bi et Non-binaire (surement un sujet que je laiserais à des gens plus compétent mais qui sera ici).
+Alors pour commencer simplement. Je suis une femme. Le mot après -transgenre- ne définit pas ce que je suis. Mais comment j'en suis arrivé à ce que je suis, une femme. Enfin arriver est un grand mot. Je me suis toujours sentie très féminine et j'ai toujours vécu avec cela.
+Je me suis pensée "gay" au début, puis bi et Non-binaire (sûrement un sujet que je laisserais à des gens plus compétents).
 
-Mais à force de passé par ses "phase" j'ai fini par comprendre, je suis une femme. 
+Mais à force de passer par ses "phases" j'ai fini par comprendre, je suis une femme. 
 
-J'ai donc commencé à me faire appellé Elle/Iel il y'a de cela une bonne anné.
-Sur internet ça à était extremement facile, mais surtout très agréable j'ai peux m'épanoire dans ma vie "virtuel". Et au jours ou je vous parle mon identité numirique est Uniquement feminin.
+J'ai donc commencé à me faire appeler Elle/Iel il y'a de cela une bonne année.
+Sur internet ça a été extrêmement facile, mais surtout très agréable j'ai pu m'épanouir dans ma vie "virtuel". Et au jour où je vous parle, mon identité numérique est uniquement féminine.
 
 
 
-##Always from keybord.
+##Away from keyboard.
 ###### Ou quand la vie reprend le dessus.
 
-C'est la que ça deviens dur je m'asume ivl mais impossible IRl, trop de passif. Je passe une bonne anné comme ça avant de partir à l'hopital. En sortant j'ai compris que cette vie à se caché sans arret de se que l'on n'est n'était pas pour moi. J'ai pris le choix le plus simple. J'ai assumé au près de mon entourage.
+C'est là que ça devient dur je m'assume ivl mais impossible IRl, trop de passif. Je passe une bonne année comme ça avant de partir à l'hôpital. En sortant j'ai compris que cette vie à se cacher sans arrêt de ce que l'on n'est n'était pas pour moi. J'ai fait le choix le plus simple. J'ai assumé au près de mon entourage.
 
-Mais le probleme reste aujourd'hui le même. J'ai déjà fais un comming out de ma ""bisexualité"" mais ça à était trop mal pris par l'ensemble de ma famille et aujourd'hui je me retrouve dans une situation compliqué ou je doit changé d'attitude completement devant eux.
+Mais le problème reste aujourd'hui le même. J'ai déjà fait un comming-out de ma ""bisexualité"" mais ça a été trop mal pris par l'ensemble de ma famille et aujourd'hui je me retrouve dans une situation compliquée où je doit changer d'attitude complètement devant eux.
 
 
 
-##Transgenre ne veux pas forcement dir transition.
+##Transgenre ne veut pas forcement dire transition.
 
-Et Oui, c'est la ou je trouve que beaucoup de gens se trompe, on vas prendre notre cher wikipedia 5 petite minute.
+Et oui, c'est là où je trouve que beaucoup de gens se trompent, on va prendre notre cher wikipedia 5 petites minute.
 
 > ===== Définition Transgenre.
 >Le transgénérisme ou transgendérisme est le fait pour une personne de s'identifier, au moins en partie, à d'autres genres 
@@ -38,10 +38,10 @@ Donc voila. Simple efficace. Transgenre ne veux pas dire trans"sexuelle"
 
 ##Le respect
 
-Et c'est la ou je vais être assez tranchante. C'est simple le genre d'une personne ne vous regarde pas. Je comprend que pour le petit transphobe qui vote FN du fond c'est dur. Mais tu demande à une "bio" que tu rencontre si elle à ou pas une bite ?
-À qu'elle moment tu trouve ça normal en faite de jugé une personne pour se qu'elle est physiquement avant de la connaitre ?
+Et c'est là où je vais être assez tranchante. C'est simple le genre d'une personne ne vous regarde pas. Je comprend que pour le petit transphobe qui vote FN du fond c'est dur. Mais tu demandes à une "bi" que tu rencontre si elle a ou pas une bite ?
+À quel moment tu trouves ça normal en fait de juger une personne pour ce qu'elle est physiquement avant de la connaitre ?
 
 
-Alors pour finir aimée vous. Sans les yeux, sans jugement juste avec le coeur.
+Alors pour finir aimez vous. Sans les yeux, sans jugement juste avec le cœur.
 
 Paix et amour sur vous <3
