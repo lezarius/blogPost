@@ -1,7 +1,7 @@
-#Les Schtruc de la semaine #1
+#Les Schtrucs de la semaine #1
 ###Petit prologue:
 
-Alors vous allez me dire "Oui mais c'est quoi des schtruc", bien en faite c'est des bidule. Tout les lundi matin 10h je vous présente 6 lien/application ou autre trouvé lors de la semaine présédante. je redige un ptit schtruc à lors propos et hop.
+Alors, vous allez me dire: "Oui mais c'est quoi des schtrucs", eh bien en fait: ce sont des bidules. Tous les lundi matin 10h je vous présenterais 6 liens/applications ou autre, trouvés lors de la semaine précédente. Je rédige un ptit schtruc à leur propos et hop.
 
 
 
@@ -9,48 +9,48 @@ Alors vous allez me dire "Oui mais c'est quoi des schtruc", bien en faite c'est 
 ##GitKraken
 [GitKraken](https://www.gitkraken.com/)
 
-Alors GitKraken est le plus mignion des kraken, est surtout une interface populaire pour Github.
-Elle permet de visualisé faciment un dépot et ses différent branche, de crée des branche de faire des pull/push et bien plus encore !
+Alors GitKraken est le plus mignon des krakens, c'est surtout une interface populaire pour Github.
+Elle permet de visualiser facilement un dépôt et ses différentes branches, de créer des branches de faire des pull/push et bien plus encore !
 
- Allez donc découvrire se petit kraken adorable.
+ Allez donc découvrir ce petit kraken adorable.
 
 
 ## TheFatRat
  [TheFatRat](https://github.com/Screetsec/TheFatRat)
 
- Ça c'est la petite perle de la semaine, au detours d'un rt j'ai trouvé ça, TheFatRat est un script utilitaire pour crée des backdoor sur une grand palette d'OS.
+ Ça c'est la petite perle de la semaine, au détour d'un RT j'ai trouvé ça, TheFatRat est un script utilitaire pour créer des backdoors sur une grande palette d'OS.
 
-Attention je m'en sert uniquement pour du pentest sur mes propre machine, tout autre utilisation est illégale =D
+Attention je m'en sert uniquement pour du pentesting sur mes propres machines, toute autre utilisation est illégale =D
 
 
 ##ParseDown
 [Markdown parser](https://github.com/erusev/parsedown)
 
-En plein developpement d'un nouveau plugin pour certain de mes site il me fallait un parser markdown est je suis tombé sur "ça", c'est une petite perle extremement rapide et optimisé. Se parser est plus performant que celui intègré dans PHP.
-Enfin bien sympa si ça peux vous être utile !
+En plein développement d'un nouveau plugin pour certains de mes sites, il me fallait un parser markdown et je suis tombée sur "ça". C'est une petite perle extrêmement rapide et optimisée. Ce parser est plus performant que celui intégré dans PHP.
+Enfin bien sympa si ça peut vous être utile !
 
 
 ##Un wallpaper
 [Green Medusa 4K](http://soniop.deviantart.com/art/Wallpaper-Green-Medusa-4K-665806480)
 
-Alors se matin après une sacrée nuit de someille je suis tombé sur ça, un superbe wallpaper dans different contraste de vert, et crée par [@Soniop](https://twitter.com/Soniop56). J'en suis tombé amoureuse, il me sert de wallpaper depuis se matin et je me devais de le partagé vue la qualité de se petit bijout ~
+Alors ce matin, après une sacrée nuit de sommeil, je suis tombée sur ça, un superbe wallpaper dans différentes tonalités de vert, et créé par [@Soniop](https://twitter.com/Soniop56). J'en suis tombée amoureuse, il me sert de wallpaper depuis ce matin et je me devais de le partager, vu la qualité de ce petit bijou ~
 
 
-##La Louttre roliste
+##La Loutre roliste
 
 [La Loutre roliste](laloutreroliste.fr/)
 
-Alors la c'est un peux différent. C'est des copain loutre de longue date, mais je me devais d'en parlée pour se premier "Schtruc de la semaine".
+Alors la c'est un peu différent. Ce sont des copains loutres de longue date, mais je me devais d'en parler pour ce premier "Schtruc de la semaine".
 
-La loutre roliste c'est, un des plus gros site de vente de materiel pour Jeux de rôle, Mais pas que, il vende des bijoux, font de l'édition de qu'elle que jeux de rôle aussi. Enfin c'est une mine d'or pour les roliste de toute horizon !
+La loutre roliste c'est, un des plus gros sites de vente de matériel pour Jeux de rôle, Mais pas que, il vendent des bijoux, font de l'édition de quelques jeux de rôle aussi. Enfin c'est une mine d'or pour les rolistes de tous horizons !
 
-##Qwant et franceInfo
+##Qwant et franceinfo
 
-On vas finire dans le calm après cette mitraillette à lien, par un article de france deux sur notre nationalement adorée qwant, le moteur de recherche opensource et respectueux <3
+On va finir dans le calme, après cette mitraillette de lien, par un article de *franceinfo* sur notre Qwant, nationalement adoré: le moteur de recherche OpenSource et respectueux de la vie privé. <3
 
-[Article Franceinfo sur Qwant](http://www.francetvinfo.fr/internet/google/qwant-l-anti-google-qui-mise-sur-le-respect-de-la-vie-privee-des-internautes_2047159.html)
-
-
+[Article franceinfo sur Qwant](http://www.francetvinfo.fr/internet/google/qwant-l-anti-google-qui-mise-sur-le-respect-de-la-vie-privee-des-internautes_2047159.html)
 
 
-> J'espere que mes Schtruc de cette semaine vous on plus, à la semaine prochaine <3
+
+
+> J’espère que mes Schtrucs de cette semaine vous on plut, à la semaine prochaine <3
