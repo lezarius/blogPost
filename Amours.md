@@ -3,54 +3,54 @@
 
 ### Prologue
 
-C'est compliqué de parlé amour, quand soit même nous l'avons vécu de si peux. Mais du peux que j'ai connu j'aimerais vous en expliqué un principe quie me parait m'afois peux connue.
+C'est compliqué de parler d'amour, quand soit même nous l'avons vécu que si peu. Mais du peu que j'ai connaisse, j'aimerais vous en expliquer un principe qui me parait, ma foi, peu connu.
 
 
-###Qu'elle que notion.
+###Quelques notions.
 
-Cela est loin d'être un guide ou quoi que se soit dans se genre ~
-Mais simplement qu'elle que conseille donné.
+Cela est loin d'être un guide ou quoi que se soit dans ce genre ~
+Mais simplement quelques conseils donnés.
 
-Plus d'un le sais mais l'amour, ça se donne avant d'être donné.
+Plus d'un le sait mais l'amour, ça se donne avant d'être donné.
 
 >####Sweet
->L'amour ça se donne, ça se vie, ça se joue comme un bon morceau de musique.
->Mais l'amour ça s'entretiens comme un instrument de musique. 
->À deux me dirais vous, mais au final n'importe le nombre temps que tout les artiste,
->De cette art qu'est l'amour en prenne soin.
+>L'amour ça se donne, ça se vit, ça se joue comme un bon morceau de musique.
+>Mais l'amour ça s'entretient comme un instrument de musique. 
+>À deux me direz-vous, mais au final qu'importe le nombre tant que tous les artistes,
+>De cet art qu'est l'amour, en prennent soin.
 
-Avec ses qu'elle que phrase j'était sur le papier, comme une envie de poésie et de tendresse je m'exprime.
-L'amours c'est avant tout un vécu qui doit être partagé et réciproque, L'amour n'existe points à sense unique...
-En anglais nous avons un "jolie mot" pour désigné les personne qui nous font fondre, "crush".
-Et c'est la le manquement de notre langue française. Dur d'expliqué se sentiment, cette envie d'être avec l'autre sans parlée d'amour. Dire que l'on est attiré ? Cela serrais sans doute trop faible de parlé d'un simple attrais quand cette attraction est plus forte que tout à vos yeux.
+Avec ces quelques phrases jetées sur le papier, comme une envie de poésie et de tendresse; je m'exprime.
+L'amour, c'est avant tout, un vécu qui doit être partagé de manière réciproque, L'amour n'existe point à sens unique…
+En anglais nous avons un "joli mot" pour désigner les personnes qui nous font fondre, "crush".
+Et c'est, là, le manquement de notre langue française. Dur d'expliquer ce sentiment, cette envie d'être avec l'autre sans parler d'amour. Dire que l'on est attiré⋅e? Cela serait sans doute trop faible de parler d'un simple attrait quand cette attraction est plus forte que tout, à vos yeux.
 
-###Sans frontiere et aveugle
-L'amour, c'est un peux comme la culture, et j'en vois certain venir, je ne parle pas de sont étalage.
-Mais bien de ses frontiere, ne suffit pas t'il de connaitre sans voire, pour se sentir et être pris dans la culture d'une ville, du pays, d'une tribu ancienne ?
+###Sans frontière et aveugle
+L'amour, c'est un peu comme la culture, et j'en vois certain venir, je ne parle pas de son étalage.
+Mais bien de ses frontières, ne suffit-il pas de connaître sans voir, pour se sentir et être pris dans la culture d'une ville, d'un pays, d'une tribu ancienne ?
 
-Ne suffit t'il pas de nos jours d'être assis pour être cultivé ? L'amours aussi mafois, que se soit en rencontrée votre partenaire sur internet ou dans la vie courante, la seul chance de réusite sera se que VOUS en faite et non la distance de votre chers et tendre.
+Ne suffit-il pas, de nos jours, d'être assis pour être cultivé⋅e ? L'amour aussi, ma foi, que se soit en rencontrant votre partenaire sur internet ou dans la vie courante, la seule chance qui réussira sera ce que VOUS en faite et non la distance de votre cher et tendre.
 
 #Cultivé
 
-Mes titre sont imagé, mais voyais vous je ne pense points avoire tord, L'amour c'est comme un imense jardin, le jardin de votre coeur.
+Mes titres sont imagés, mais voyez-vous: je ne pense points avoir tort, L'amour est comme un immense jardin, le jardin de votre cœur.
 
-Oubliée le un peux trop et certaine plante risque de pourir, ou pire encore de mourir.
-Alors soyais donc les jardinier de votre coeur, faite fleurire l'amour, arrosé le souvent et prenais y soin.
-T'elle est pour moi le secret d'une relation saine et épanoui.
+Oubliez-le un peu trop et certaine plantes risquent de pourrir, ou pire encore de mourir.
+Alors soyez donc les jardiniers de votre cœur, faite fleurir l'amour, arrosez-le souvent et prenez en soin.
+Tel est pour moi le secret d'une relation saine et épanouie.
 
 
 #Une simple démonstration
 
-Voici un petit ecris pour un être aimée fictife, cela conclura l'article, il se veux simple et uniquement la pour partagé une idée, un resentie, une définie personelle d'un mot trop souvent utilisé à mon gouts.
+Voici un petit écris pour un être aimé fictive, cela conclura l'article, il se veut simple et uniquement là pour partager une idée, un ressenti, une définition personnelle d'un mot, trop souvent utilisé à mon goût.
 
 >D'un chat, à un autre
-> Oh toi, qui vas de foyer, en foyer, de goutierre en goutierre, mal aimé de tous, part ta robe pleine de couleur.
->Toi qui d'un simple miaulement reveille en moi, une sensation que je pensais oubliée au tréfond de mon coeur
->Moi qui pensais cela impossible tu as ouvert une porte. Et l'envie de partagé avec toi et plus forte que tout.
->Me voila nu, sans maitre, devant toi, et avec ses qu'elle que petit mot, toi qui denouveaux à trouvé maitre.
->Je te suplie de regarde ou fond de mon coeur. Et de peux être y trouvé un bonheure. Que seul nous deux pouvons trouvé.
+> Oh toi, qui vas de foyer, en foyer, de gouttière en gouttière, mal aimé de tous, part ta robe pleine de couleur.
+>Toi qui d'un simple miaulement réveille en moi, une sensation que je pensais oubliée au tréfonds de mon cœur
+>Moi qui pensais cela impossible tu as ouvert une porte. Et l'envie de partager avec toi est plus forte que tout.
+>Me voila nu, sans maître, devant toi, et avec ces quelques petits mots, toi qui de-nouveau a trouvé maître.
+>Je te supplie de regarder ou fond de mon cœur. Et de peut-être y trouver un bonheur. Que seul nous deux pouvons trouver.
 
->Ta sensible chatte de goutierre.
+>Ta sensible chatte de gouttière.
 
 
-Et voila, c'était Ronce, passez une agréable journée, et tweeté qu'elle que mot doux avec #RonceSansPique ~
+Et voila, c'était Ronce, passez une agréable journée, et tweetez quelques mots doux avec #RonceSansPique ~
