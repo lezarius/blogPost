@@ -61,6 +61,7 @@ J'ai le livre sous les yeux, je l'ai déjà lu y'a plusieur mois. La psycologie 
 >
 >
 >La lune observe les élus
+>
 >A se moquer des gens qui se croient aimés
 >
 >A regarder les gens pleurer
