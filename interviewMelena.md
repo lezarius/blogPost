@@ -59,11 +59,16 @@ J'ai le livre sous les yeux, je l'ai déjà lu y'a plusieur mois. La psycologie 
 >Elle est là à regarder le monde tourner
 >A regarder les fleuves couler et chuter
 >
+>
 >La lune observe les élus
 >A se moquer des gens qui se croient aimés
+>
 >A regarder les gens pleurer
+>
 >A déplorer les miséreux, émue.
 >
 >A tout moment suis-la,
+>
 >Tu trouveras là-bas,
+>
 >La vérité »
