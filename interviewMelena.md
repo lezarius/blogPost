@@ -6,13 +6,15 @@ Bonjour à tous, c'est un article que je voulais vraiment faire et qui me tient 
 Vous faire découvrir une amie, une écrivaine en or.
 Prenez donc une tasse de thé et bonne lecture !
 
+Vous pouvez retrouvé les livres de melena khan [ici](http://www.thebookedition.com/fr/recherche?controller=search&orderby=position&orderway=desc&search_query=melena+khan)
+
 ###Une présentation s'impose:
 
 #####>Ronce:
  Bonjour Melena et bienvenue sur lezarius.science. Peux-tu te présenter en quelques mots pour nos lecteurs ?
 
 #####>Melena:
-Bien sûr, je suis @MelenaKhan, romancière et noveliste depuis mes 16 ans, âge qui correspond plus ou moins à ma première édition de "Jusqu'au bout de l'éternité".
+Bien sûr, je suis [@MelenaKhan](https://twitter.com/MelenaKhan), romancière et noveliste depuis mes 16 ans, âge qui correspond plus ou moins à ma première édition de "Jusqu'au bout de l'éternité".
 Je suis une écrivaine avec un style très kafkaien. Pour préciser, je dirais que mes principales sources d'inspiration viennent des écrits de Franz Kafka, Amelie Nothomb et Haruki Murakami.
 
 #####>Ronce:
