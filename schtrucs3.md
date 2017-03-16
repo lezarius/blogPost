@@ -27,11 +27,13 @@ Pronton VPN est le nouveaux bébé de protonmail, un service de mail ultra sécu
 Le tomme un etait sortie y'a qu'elle que année, c'est une BD sur l'histoire d'une startup de jeux vidéo, la première campagne ulule avais très bien marché ! Celle la est toute aussi prometeuse ! Un projet à suivre pour les amateur de BD !
 
 ###La switch na pas tenu longtemps
-(Switch hack)https://korben.info/root-homebrew-nintendo-switch.html
+
+[Switch hack](https://korben.info/root-homebrew-nintendo-switch.html)
 
 Et voila pas longtemps après ça sortir la switch se fait hack, ça ne permet pas encore l'install custum ou de mettre des rom mais ça avence bien vite pour cette toute nouvelle console !
 
 ###Encore un coups de coeur visuel
+
 [Notre chere petite soniop](http://soniop.deviantart.com/art/Wallpaper-Evening-moon-4K-668703458)
 
 Que puis-je dire de plus ? Soniop nous à pondu encore une sacré beauté, avec se wallpapper !
