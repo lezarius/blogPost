@@ -1,8 +1,8 @@
 #Sexualité
 
-Ça fait un petit bout de temps que j'avais envie d'écrire à se propos. Donc voici un petit article sur le "spectre de la sexualité". on vas commencé simplement:
+Ça faisait un petit bout de temps que j'avais envie d'écrire à ce propos. Donc voici un petit article sur le "spectre de la sexualité". On va commencer simplement&nbsp;:
 
-###Une définition de wikipedia.
+###Une définition de Wikipédia.
 
 >####Orientation sexuelle
 >La question de l'orientation sexuelle est, chez l'être humain, un thème complexe et parfois à l'origine de controverses 
@@ -12,29 +12,29 @@
 >facteur de l'orientation sexuelle dans la majorité des espèces animales1 ; mais, chez l'être humain, il existerait plutôt 
 >des apprentissages multifactoriels de préférences sexuelles.
 
-Une manierre pompeuse d'expliqué que notre sexualité ne dépend pas que de nos hormone mais plus de se que l'on ressent.
+Une manière pompeuse d'expliquer que notre sexualité ne dépend pas que de nos hormones mais plus de ce que l'on ressent.
 
 ###Ma définition
 
-J'ai écris beaucoup, environ 40 ligne quand j'ai du parlée de notre sexualité.  
-mais voila le problème, on n'a pas tous la même sexualité et c'est la qu'une amie est rentrée en jeux.
+J'ai beaucoup écrit, environ 40 lignes, quand j'ai dû parler de notre sexualité.
+Mais voila le problème, on n'a pas tous la même sexualité et c'est là qu'une amie est rentrée en jeu.
 
-Je lui est demandé de faire une répresentation de se qu'on appel "le spectre de la sexualité":
+Je lui ai demandé de faire une répresentation de ce qu'on appelle "le spectre de la sexualité"&nbsp;:
 
 ![gif sur la sexualité](/images/gifsexualite.gif)
 
-rien de plus à en dire je pense.
+Rien de plus à en dire je pense.
 
 ###La sexualité
 
-La sèxualité pour beaucoup est qu'elle que chose de fixe, on est sois hétéro sois homo mais il n'y a pas d'entre deux car la bisexualité pour beaucoup n'est qu'un face...
+La sexualité, pour beaucoup, est quelque chose de fixe, on est soit hétéro soit homo mais il n'y a pas d'entre deux car la bisexualité pour beaucoup n'est qu'un phase...
 
-Tout cela est faux, la sexualité est qu'elle que chose de fluide... chaqu'un à ça propos sexualité.
-C'est la toute la dificulté il faut être inclusife est n'obliée personne pour ne pas blesser les gens...
+Tout cela est faux, la sexualité est quelque chose de fluide... chacun a sa propre sexualité.
+C'est là toute la difficulté il faut être inclusif et n'oublier personne pour ne pas blesser les gens...
 
 ###À retenir
 
-Chaqu'un à ça sexualité propre à sont instant T. Vous vous devez de le respecté et de ne pas lui impossé votre vition de ÇA sexualite.
-Pour cela, demandé (si vous ête intime avec hein.) mais communiqué, c'est peux être la meilleur solution pour vivre avec la personne sans la blessez pas vos propos.
+Chacun a sa sexualité propre à son instant T. Vous vous devez de le respecter et de ne pas lui imposer votre vision de SA sexualité.
+Pour cela, demandez (si vous ête intime avec lui hein) mais communiquez, c'est peut être la meilleure solution pour vivre avec la personne sans la blesser par vos propos.
 
 Merci d'avoir lu, c'était Ronce, respectez-vous, aimez-vous, et partagez l'article <3
